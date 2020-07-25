@@ -8,4 +8,4 @@
 
 所以你来错地方了
 
-blog.memz-group.page 请
+edenjohnson.me 请
